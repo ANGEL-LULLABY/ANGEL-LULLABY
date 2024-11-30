@@ -6,3 +6,6 @@
 ![](https://64.media.tumblr.com/6003ef6bc8526cb0303bc6ba78f4dc1e/76d97e8ae108454d-5e/s100x200/79a3bf082ba02026cd0e7e3e9c6096b6c40fd3e4.gifv)
 ![](https://64.media.tumblr.com/2a46d5ee526a35e8b36edc24825ef062/76d97e8ae108454d-a3/s100x200/f242c18437cb89fedb75bf6dfa95d924ecbbf599.pnj)
 ![](https://64.media.tumblr.com/872bf7cf872ae9dca77ed8c8e2efcf8b/39ba1bd4065f00fc-34/s640x960/7e1d3793807c86505be8215e23e7ed8b98e203a0.pnj)
+
+
+ᵍʳᵃᵖʰᶦᶜ ᵇʸ ˢᵘⁿᵏᵘᵖⁿᵍ ᵒⁿ ᵀᵘᵐᵇˡʳ
